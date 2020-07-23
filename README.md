@@ -1,3 +1,3 @@
-# By XiMeng
-Just a blog.
-[To know more>>>](https://waka-xi.github.io/)
+# Linda 看着你哟
+个人长篇碎碎念存储地点
+[To know more>>>](https:/Linda-tian.github.io/)
